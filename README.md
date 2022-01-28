@@ -1,3 +1,7 @@
-# [නව ලින්ක් එක](https://github.com/ravindu01manoj/Sew-Queen)
+# [නව ලින්ක් එක](https://github.com/Jaidev21
 
-# [NEW link](https://github.com/ravindu01manoj/Sew-Queen)
+/Sew-Queen)
+
+# [NEW link](https://github.com/Jaidev21
+
+/Sew-Queen)
